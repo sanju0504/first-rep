@@ -1,2 +1,2 @@
 # first-rep
-I am Sanjana koushik
+I am Sanjana koushik(s)
